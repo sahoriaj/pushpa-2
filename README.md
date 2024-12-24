@@ -2,7 +2,7 @@
 
 **Click the links below to download *Pushpa 2* in different resolutions:**
 
-![Pushpa 2 Image](https://your-image-url.com/pushpa2.jpg)  <!-- Replace with your image URL -->
+![Pushpa 2 Image](MV5BNWU1ZWFhNGQtZDhlZC00ZWFlLTlmNmEtN2VmYmZiN2Y5ZmQ2XkEyXkFqcGc@._V1_FMjpg_UX1000_.jpg)  <!-- Replace with your image URL -->
 
 ## Download Links:
 
